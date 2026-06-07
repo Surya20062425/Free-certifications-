@@ -1,8 +1,4 @@
-I'll help you find comprehensive free coding resources that offer certifications. Let me first load the research skill to ensure thorough coverage.
-Let me conduct comprehensive research on free coding resources that offer certifications across multiple dimensions.
-I've gathered comprehensive information on free coding resources with certifications. Here's everything organized by category:
 
----
 
 ## Completely Free (Zero Cost — Certificates Included)
 
